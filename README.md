@@ -10,3 +10,10 @@ http://i.4cdn.org/gif/1504431137458.webm
 http://i.4cdn.org/gif/1504525915233.webm
 http://i.4cdn.org/gif/1504509564707.webm
 http://i.4cdn.org/gif/1504543358249.webm
+
+
+https://www.tsumino.com/Read/View/33289/1#7
+https://www.tsumino.com/Read/View/30963#16
+https://www.tsumino.com/Read/View/19702/1#5
+https://www.tsumino.com/Read/View/31151/3#6
+https://www.tsumino.com/Read/View/10653/1#8
