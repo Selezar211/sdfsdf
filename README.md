@@ -17,3 +17,5 @@ https://www.tsumino.com/Read/View/30963#16
 https://www.tsumino.com/Read/View/19702/1#5
 https://www.tsumino.com/Read/View/31151/3#6
 https://www.tsumino.com/Read/View/10653/1#8
+
+http://en.paradisehill.cc/this_aint_game_of_thrones_xxx-this_is_a_parody/
